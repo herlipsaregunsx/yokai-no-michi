@@ -1,1 +1,0 @@
-# yokai-no-michi
